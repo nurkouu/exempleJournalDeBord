@@ -13,11 +13,10 @@ L'application capcut m'intrigue beaucoup, car c'est sur cette application que je
 Photoshop est une application que je vais commencer à utiliser dans mon cours d'illustration numérique. Grâce à ce cours, je vais pouvoir pousser ma créativité dans le secteur des photos en l'utilisant.
 
 ### [K/DA](https://www.youtube.com/watch?v=97R8STY7_KM)
-K/DA est un groupe de kpop musical qui contient 5 personnages (Akali, Ahri, Evelynn, Kai'sa et Seraphine) du jeu League Of Legends. Dans la vidéo, on voit les réelles chanteuses derrières les voix en train de performer une de leurs chansons très populaire "More" à Shanghai en 2020 accompagner de leur personnage respective du jeu. Je pense que pour que cela soit possible, ils ont du utiliser des hologrammes. J'ai mis ce lien, car je trouve que la production du tout était intéressant et pour les fans de LOL (comme moi), je suis sûr que c'était fou et merveilleux de voir les personnages du jeu en "vrai vie" en train de performer devant leurs eyes en plus des vraies chanteuses. C'est comme un "win win".
+K/DA est un groupe de kpop musical qui contient 5 personnages (Akali, Ahri, Evelynn, Kai'sa et Seraphine) du jeu: League Of Legends. Dans la vidéo, on voit les réelles chanteuses derrières les voix en train de performer une de leurs chansons très populaire "More" à Shanghai en 2020 accompagner de leur personnage respective du jeu. Je pense que pour que cela soit possible, ils ont du utiliser des hologrammes. J'ai mis ce lien, car je trouve que la production du tout était intéressant et que pour les fans de LOL (comme moi), je suis sûr que c'était fou et merveilleux de voir les personnages du jeu en "vrai vie" en train de performer devant leurs eyes en plus des vraies chanteuses. C'est comme un "win win".
 
 ### [Jumpers jump podcast](https://www.youtube.com/@jumpersjump/podcasts)
-J'écoute ce podcast sur tiktok et je trouve qu'il parle de faits et d'histoires très intéressants. 
+J'écoute ce podcaste sur tiktok et je trouve qu'ils parlent de faits, d'histoires et de mythes très intéressants. Ils abordent aussi des topiques par rapport à la culture, la mode, des aventures et beaucoup plus. Ils sont aussi drôles. Je pense que ce podcaste peut influencer mon côté créatif dans plusieurs manières en influençant ma mode par exemple et il peut aussi bonifier ma culture générale.
 
-### Lien 5 
-Expliquer pourquoi vous avez choisi ce lien. 
-
+### [Roblox](https://www.roblox.com/)
+Depuis que je suis jeune, j'ai toujours joué à ce jeu avec le même compte. En fait, j'ai découvert que j'adorais la décoration d'intérieur grâce à cette plateforme en jouant à l'un de ses jeux très connus et très populaires appelé "Adopt me". "Adopt me" m'a non seulement aidé à réaliser ma passion pour le design, mais cela a également augmenté mon abilité d'économiser mon argent en virtuelle et dans la vraie vie. J'aime ça économiser mon argent. (Fun fact: Je suis toujours riche dans le jeu!)
