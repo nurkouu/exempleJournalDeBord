@@ -7,7 +7,7 @@ Exemple:
 L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui porte un message fort. En effet, elle tente de nous sensibiliser aux enjeux climatiques. Prendre position et défendre des valeurs par l'art est l'un des aspects du multimédia qui m'intéresse beaucoup. 
 
 ### [Capcut](https://www.capcut.com/fr-fr/)
-L'application capcut m'intrigue beaucoup, car c'est sur cette application que je monte des vidéos pendant mes temps-libres. Ça me permet de m'exprimer en faisant des edits de certains célébrités surtout les artistes de l'industrie Kpop. De plus, je continue d'apprendre des techniques pour rendre mes edits encore plus intéressants.
+L'application capcut m'intrigue beaucoup, car c'est sur cette application que je monte des vidéos pendant mes temps libres. Ça me permet de m'exprimer en faisant des "edits" de certains célébrités surtout les artistes de l'industrie Kpop. De plus, je continue d'apprendre des techniques pour rendre mes "edits" encore plus intéressants.
 
 ### [Photoshop](https://www.adobe.com/ca_fr/products/photoshop.html)
 Photoshop est une application que je vais commencer à utiliser dans mon cours d'illustration numérique. Grâce à ce cours, je vais pouvoir pousser ma créativité dans le secteur des photos en l'utilisant.
