@@ -18,5 +18,5 @@ La clarté de la conférence était bonne et logique surtout quand elles abordai
 
 ### Qualité visuelle (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la qualité visuelle de la conférence?Est-ce que l'esthétisme était de qualité?
-J'ai trouvé que la qualité visuel n'était pas mauvaise. La qualité de l'esthétisme était bonne puisque les couleurs dans les diapositives utlisées faisaient du sens.
+J'ai trouvé que la qualité visuel n'était pas mauvaise et la qualité de l'esthétisme était bonne puisque les couleurs dans les diapositives utilisées faisaient du sens.
 
