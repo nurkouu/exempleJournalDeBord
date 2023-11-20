@@ -17,6 +17,6 @@ Comment avez-vous trouvé la clarté de la conférence? Est-ce que le développe
 La clarté de la conférence était bonne et logique surtout quand elles abordaient plus sur le programme qu'elles sont dans activement.
 
 ### Qualité visuelle (Entre 1 et 2 lignes)
-Comment avez-vous trouvé la qualité visuelle de la conférence?Est-ce que l'esthétisme était de qualité?
+Comment avez-vous trouvé la qualité visuelle de la conférence? Est-ce que l'esthétisme était de qualité?
 J'ai trouvé que la qualité visuel n'était pas mauvaise et la qualité de l'esthétisme était bonne puisque les couleurs dans les diapositives utilisées faisaient du sens.
 
