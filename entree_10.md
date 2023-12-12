@@ -3,14 +3,15 @@
 
 ### Points forts de votre présentation 
 Nommer deux points forts de votre présentation.
-L'idée principale et 
+La communication claire et le contact visuel.
 
 ### Points à améliorer
 Nommer deux points à améliorer de votre présentation ainsi qu'une piste de solution pour les prochaines présentations. 
-
+Il faudrait que j'améliore la qualité fonctionnelle de la présentation et ajouter des exemples ou encore aller plus en détaille. Il s'agit de faire plus de recherche pour améliorer ma présentation.
 
 ### Gestion du temps
 Comment avez-vous géré votre temps lors de la présentation?
+J'aurais préparé un plan structuré et bien me pratiquer.
 
 ### Outils et ressources
 Quels outils et ressources avez-vous utilisés pour la préparation de votre présentation?
@@ -18,9 +19,11 @@ On a utiliser canvas et trello pour préparer notre présentation.
 
 ### Difficultés
 Quelles sont les difficultés que vous avez rencontrées pendant la présentation?
+Il faudrait que je ralentis le rythme lorsque je présente.
 
 ### Présentation préférée
 Quelle présentation avez-vous préféré et pourquoi?
+Je sais pas.
 
 ## Rétrospective de la session
 ## Écris un retour sur ta session (1 à 2 lignes par question)
